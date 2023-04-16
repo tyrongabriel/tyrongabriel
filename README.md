@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓 Student Dev
+👨‍🎓 19y/o Student Dev
 
 
 ## 🌐 Socials:
